@@ -9,9 +9,7 @@
 
 - I’m looking to collaborate on **LEA - UFPA**
 
-- I’m looking for help with **Cybersecurity**
-
-- 💬 Ask me about **vulnerability**
+- 💬 Ask me about **Cybersecurity**
 
 - 📫 How to reach me **daniloloureiro.dl@gmail.com**
 
