@@ -7,7 +7,7 @@
 
 - I’m currently learning **Computer Engineering**
 
-- I’m looking to collaborate on **LEA - UFPA**
+- I’m collaborate on **LEA - UFPA**
 
 - 💬 Ask me about **Cybersecurity**
 
